@@ -3,7 +3,7 @@ IT Specialist | Cybersecurity Student | SOC Analyst
 
 Riyadh, Saudi Arabia  
 Bachelor of Science in Information Technology (Cybersecurity)  
-Marymount University — GPA: 3.60 | Expected Graduation: 2026  
+Marymount University | Expected Graduation: 2026  
 
 ---
 
